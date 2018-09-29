@@ -9,6 +9,7 @@ Email: wangjiaojackie@163.com<br/>
 ---
 2012.10-2013.07 Wuhan University of Science and Technology's Publicity Department Officer<br/>
 - In charge of various propaganda work of college,including making up propaganda boards of writing posters<br/> 
+
 2016.09-2017.06 Xi'an Jiaotong University's Alumni Association Volunteer
 - In charge of inviting and receiving alumni to take part in the important activitings held by our university<br/>
 #### Personal Awards
