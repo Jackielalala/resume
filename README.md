@@ -12,6 +12,7 @@ Email: wangjiaojackie@163.com<br/>
 
 2016.09-2017.06 Xi'an Jiaotong University's Alumni Association Volunteer
 - In charge of inviting and receiving alumni to take part in the important activitings held by our university<br/>
+
 #### Personal Awards
 ---
 2015 obtained 2nd scholarship and acquired the title of Outstanding Student<br/>
